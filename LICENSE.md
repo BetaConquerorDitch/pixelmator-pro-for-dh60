@@ -1,4 +1,4 @@
-
+Pixelmator Pro for macOS custom Panel: shortcut customization & custom brushes is the best Pixelmator Pro for macOS panel, featuring shortcut customization and custom brushes.
 
 
 
